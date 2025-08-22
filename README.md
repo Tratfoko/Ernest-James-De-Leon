@@ -11,4 +11,4 @@ Current Projects:
   - N/A
 
 Contact:
-Email: ernestjamesdeleon2005@gmail.com 
+- Email: ernestjamesdeleon2005@gmail.com 
